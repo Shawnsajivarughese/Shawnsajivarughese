@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Shawnsajivarughese
-- 🌱 I’m currently learning AIDS in SJCET PALAI
+- 🌱 I’m currently learning AI DS in SJCET PALAI
 
